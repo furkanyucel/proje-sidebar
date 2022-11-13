@@ -1,2 +1,0 @@
-# proje-sidebar
-# proje-sidebar
